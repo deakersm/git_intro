@@ -1,1 +1,2 @@
 Michael Deakers
+deakersm@oregonstate.edu
